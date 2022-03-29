@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @naingphyotun
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning IT
-- 💞️ I’m looking to collaborate on Janpan
+- 💞️ I’m looking to atten school in Janpan
 - 📫 How to reach me naingphyotun87@gmail.com
 
 <!---
